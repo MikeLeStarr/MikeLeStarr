@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Michael Ankomah Arthur/ MikeLeStarr
-- 👀 I’m interesting in learning new things and hence solving real life problems from what i have learnt and acquired.I love to hold my God Almighty thight,cook,make new friends and above all make my environment ☺ once again.
+- 👀 I’m interesting in learning new things and hence solving real life problems from what i have learnt and acquired.I love to hold my God Almighty thight,cook,make new friends and above all make my environment smile once again.
 - 
 - 🌱 I’m currently learning Software Engineering, Deutsch( German ) and French on my Duolingo learning app.
 - 💞️ I’m looking to collaborate with like minded people and friends to make our environment smile once again.
